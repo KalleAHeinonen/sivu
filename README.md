@@ -1,1 +1,1 @@
-non serious personal website
+non serious personal page
